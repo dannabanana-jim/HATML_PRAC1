@@ -1,4 +1,4 @@
-# HATML_PRAC1
+# HTML_PRAC1
 
 ![image](https://github.com/user-attachments/assets/3fdb45fd-f2d2-4092-b30c-e2f3e9b62084)
 
