@@ -1,6 +1,6 @@
 # HTML_PRAC1
 
-![image](https://github.com/user-attachments/assets/3fdb45fd-f2d2-4092-b30c-e2f3e9b62084)
+![image](https://github.com/user-attachments/assets/394937b7-43d5-4691-a96b-e490c0166d22)
 
-![image](https://github.com/user-attachments/assets/10ffccf2-b4ab-4de1-a1f1-f8077eaaec44)
+![image](https://github.com/user-attachments/assets/31870e17-bc62-429b-a8cb-88a381838715)
 
